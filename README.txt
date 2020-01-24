@@ -10,6 +10,10 @@ Nome: ANEXO IX - TERMO DE RESPONSABILIDADE
 Referência: http://receita.economia.gov.br/orientacao/aduaneira/manuais/repetro/pasta-de-arquivos/anexo-iii-termo-de-responsabilidade-in-1880.doc/view
 
 
+Lista de arquivos completa em:
+http://receita.economia.gov.br/orientacao/aduaneira/manuais/repetro/pasta-de-arquivos
+
+
 
 
 
